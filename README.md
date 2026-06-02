@@ -1,3 +1,6 @@
+
+![](https://komarev.com/ghpvc/?username=yaasuhiro)
+
 <p align="center">
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 <p align="center"> 
