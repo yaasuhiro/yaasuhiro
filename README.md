@@ -14,7 +14,7 @@
 <p align="center">
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 <p align="center">
-dni: basic dni criteria, 18+ -12 (unless we're already friends), fictionkins (thin ice), irls, toxic yumeshippers, tcc, uab, pro-trump, pro-ice, pro-israel, pro-life, pro/dark/comshippers (u guys like children, pls dont interact with me), endogenic systems (veeeerrryyy thin ice), nazi/nazi sympathizer, if u believe blackwashing is a thing (it's not), use slurs you're unable to reclaim, colorist/make microaggressions, chronically online/extremely sensitive, use typing quirks (only if they're ridiculous, thin ice) either way i block freely but if you happen to fit this criteria i'll just block you from the getgo to save me some time. also if ur friends with/associate with dangan chillin or yurika dont interact with me.
+dni: basic dni criteria, 18+ -12 (unless we're already friends), fictionkins (thin ice), irls, toxic yumeshippers, tcc, pro/dark/comshippers. basically just dont interact with me if you're a weirdo/extremely mentally ill. either way i block freely so take this with a grain of salt
 <p align="center">
   ⋆｡‧˚ʚ🔮ɞ˚‧｡⋆
   <p align="center">
