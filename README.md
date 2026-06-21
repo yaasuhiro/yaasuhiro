@@ -25,7 +25,7 @@
 c+h freely, take inspo from my skins freely with permission first — ᨳଓ .
   <p align="center">
     <p align="center">
-" 𝚒𝚏 𝚝𝚑𝚎𝚛𝚎'𝚜 𝚗𝚘 𝚛𝚘𝚊𝚍, 𝚢𝚘𝚞 𝚓𝚞𝚜𝚝 𝚐𝚘𝚝𝚝𝚊 𝚋𝚞𝚒𝚕𝚍 𝚘𝚗𝚎 ! "
+" 𝚒𝚏 𝚝𝚑𝚎𝚛𝚎'𝚜 𝚗𝚘 𝚛𝚘𝚊𝚍 , 𝚢𝚘𝚞 𝚓𝚞𝚜𝚝 𝚐𝚘𝚝𝚝𝚊 𝚋𝚞𝚒𝚕𝚍 𝚘𝚗𝚎 ! "
 
 <p align="center">
    <img width="500" height="220" alt="download (20)" src="https://github.com/user-attachments/assets/c08c92a4-1851-49ad-ba1b-dffffe2a0f01" />
@@ -44,4 +44,4 @@ c+h freely, take inspo from my skins freely with permission first — ᨳଓ .
 <p align="center">
 𐔌՞ ܸ.ˬ.ܸ՞𐦯　 basic dni criteria
 <p align="center">
-<img width="500" height="220" alt="tumblr_mr98o6vzrL1rqk8teo2_500" src="https://github.com/user-attachments/assets/be3f1b1d-8efb-4a2f-8b37-83951d4630ee" />
+<img width="500" height="220" alt="CxeirDOWQAQaKFD (1)" src="https://github.com/user-attachments/assets/167de6d2-9289-4759-aab9-8a4098272f3c" />
