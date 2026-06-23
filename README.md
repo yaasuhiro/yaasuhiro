@@ -1,5 +1,6 @@
-![](https://komarev.com/ghpvc/?username=yaasuhiro&base=753434)
 <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=554035&label=♡&base=10679" alt="Profile Views Counter" >
+</p>
 <p align="center">
 <img width="500" height="220" alt="tumblr_d5090edd4d42ca2ce6e5174d7ec56dcc_a53259fa_500" src="https://github.com/user-attachments/assets/859e565e-111c-42c0-9e2d-33c3ef203721" />
 <p align="center">
