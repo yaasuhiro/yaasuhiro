@@ -2,7 +2,7 @@
 <img width="500" height="175" alt="Untitled86_20260624152158" src="https://github.com/user-attachments/assets/6f2b1839-bb18-4496-89c7-97c523678ab7" />
 
 <p align="center">
-˚˖𓍢ִ໋❀  ‎ ‎  my lovelies ‎ ‎ ‪♡₊ ⊹ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=896a4b&label=♡&base=10679" alt="Profile Views Counter" >
+‪⊹ ₊♡  ‎ ‎  my lovelies ‎ ‎ ‪♡₊ ⊹ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=896a4b&label=♡&base=10679" alt="Profile Views Counter" >
 </p>
 <p align="center">
 <img width="510" height="400" alt="Untitled93_20260624175631" src="https://github.com/user-attachments/assets/c0816a83-afad-459b-924e-f410849642df" />
