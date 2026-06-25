@@ -35,7 +35,7 @@ c+h freely, take inspo from my skins freely with permission first — ᨳଓ .
 <p align="center">
   <img width="510" height="100" alt="Untitled84_20260624151715" src="https://github.com/user-attachments/assets/eecb0f74-8bf8-4f60-864f-9be9dadd3a56" />
 <p align="center">
-💨　 s t r a w p　 ╱　𝘆 𝗮 𝘀 𝘂 𝗵 𝗶 𝗿 𝗼
+🥟　 s t r a w p　 ╱　𝘆 𝗮 𝘀 𝘂 𝗵 𝗶 𝗿 𝗼
 　 .◞
 <p align="center">
 ♡
