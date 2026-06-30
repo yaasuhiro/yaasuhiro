@@ -5,7 +5,8 @@
 ‪⊹ ₊♡  ‎ ‎  my lovelies ‎ ‎ ‪♡₊ ⊹ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=896a4b&label=♡&base=10679" alt="Profile Views Counter" >
 </p>
 <p align="center">
-<img width="510" height="400" alt="Untitled93_20260624175631" src="https://github.com/user-attachments/assets/c0816a83-afad-459b-924e-f410849642df" />
+<img width="510" height="500" alt="Untitled112_20260630153653" src="https://github.com/user-attachments/assets/a401cdce-1a2c-43ef-becc-c419a89ff0d7" />
+
 
 <p align="center">
 " 𝚒𝚝'𝚜 𝚓𝚞𝚜𝚝 ... 𝚋𝚊𝚜𝚎𝚍 𝚘𝚗 𝚛𝚎𝚕𝚒𝚐𝚒𝚘𝚞𝚜 𝚐𝚛𝚘𝚞𝚗𝚍𝚜, 𝚢𝚊 𝚔𝚗𝚘𝚠 ... ? "
