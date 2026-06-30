@@ -27,7 +27,7 @@
 <img width="326" height="13" alt="Untitled91_20260624154453" src="https://github.com/user-attachments/assets/b9d580a6-12f1-48b9-998a-5ec31a646b67" />
 
   <p align="center">
-c+h freely, take inspo from my skins freely with permission first — ᨳଓ .
+c+h freely, take inspo from my skins freely [with permission first](https://rentry.co/yaasuhiro) — ᨳଓ .
   <p align="center">
     <p align="center">
 " 𝚒𝚏 𝚝𝚑𝚎𝚛𝚎'𝚜 𝚗𝚘 𝚛𝚘𝚊𝚍 , 𝚢𝚘𝚞 𝚓𝚞𝚜𝚝 𝚐𝚘𝚝𝚝𝚊 𝚋𝚞𝚒𝚕𝚍 𝚘𝚗𝚎 ! "
