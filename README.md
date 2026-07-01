@@ -1,12 +1,14 @@
 <p align="center">
-<img width="500" height="175" alt="Untitled86_20260624152158" src="https://github.com/user-attachments/assets/6f2b1839-bb18-4496-89c7-97c523678ab7" />
+<img width="500" height="210" alt="Untitled134_20260630211215" src="https://github.com/user-attachments/assets/45654471-d4e7-4bb1-a65d-d7f83b669920" />
+
 
 <p align="center">
 ‪<img width="20" height="20" alt="eke56TQ" src="https://github.com/user-attachments/assets/3d21a180-8aba-4628-92ae-fac4634413ab" />
   ‎ ‎  ⊹ ₊<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" />  ‎ ‎  my lovelies ‎ ‎ ‪<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" />₊ ⊹ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=896a4b&label=♡&base=10679" alt="Profile Views Counter" >
 </p>
 <p align="center">
-<img width="510" height="500" alt="Untitled112_20260630153653" src="https://github.com/user-attachments/assets/a401cdce-1a2c-43ef-becc-c419a89ff0d7" />
+<img width="510" height="360" alt="Untitled126_20260630202552" src="https://github.com/user-attachments/assets/b68a2bc7-ae05-4aa6-98a1-91383930ad7a" />
+
 
 
 <p align="center">
@@ -41,7 +43,8 @@ c+h freely, take inspo from my skins with permission first — <img width="15" h
 " 𝚒𝚏 𝚝𝚑𝚎𝚛𝚎'𝚜 𝚗𝚘 𝚛𝚘𝚊𝚍 , 𝚢𝚘𝚞 𝚓𝚞𝚜𝚝 𝚐𝚘𝚝𝚝𝚊 𝚋𝚞𝚒𝚕𝚍 𝚘𝚗𝚎 ! "
 
 <p align="center">
-  <img width="510" height="100" alt="Untitled84_20260624151715" src="https://github.com/user-attachments/assets/eecb0f74-8bf8-4f60-864f-9be9dadd3a56" />
+  <img width="510" height="100" alt="Untitled128_20260630204152" src="https://github.com/user-attachments/assets/97f69c69-a0c8-4470-800b-1a9254ddc1d3" />
+
 <p align="center">
 <img width="20" height="20" alt="ondW81T" src="https://github.com/user-attachments/assets/855f8083-c735-4f3d-b872-d48949a14f57" />
 　 s t r a w p　 ╱　𝘆 𝗮 𝘀 𝘂 𝗵 𝗶 𝗿 𝗼
@@ -70,4 +73,5 @@ c+h freely, take inspo from my skins with permission first — <img width="15" h
   <p align="center">
 visit .co/yaasuhiro for xtra boundaries  ‎‎  ‎‎  , ‎‎  ‎‎  <img width="20" height="20" alt="w0jQKM0" src="https://github.com/user-attachments/assets/cdff2bc5-e857-432e-9e26-7ec3370111fe" />
    <p align="center">
-   <img width="500" height="175" alt="Untitled85_20260624152125" src="https://github.com/user-attachments/assets/463ea227-152b-4899-85a3-cd243bde19c3" />
+   <img width="500" height="210" alt="Untitled134_20260630211247" src="https://github.com/user-attachments/assets/69fb7597-b379-4952-a3ef-4f8cfe347998" />
+
