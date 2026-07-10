@@ -17,7 +17,7 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 <p align="center"> 
 ˖ ݁<img width="20" height="20" alt="ijl2Xo6" src="https://github.com/user-attachments/assets/f745dbf0-42d7-4e41-bf12-df71d95307af" />
-. ⊹˚₊ ‎‎  ‎‎  naka‎ ‎‎  <img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" /> ‎‎  14‎ ‎‎  ‎<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" /> ‎‎  she/her‎ ‎‎  ‎<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" /> ‎‎  poc  ‎‎  ‎‎   ₊˚⊹ .<img width="20" height="20" alt="ijl2Xo6" src="https://github.com/user-attachments/assets/832c4eb3-b21b-4ccc-992f-addff5805d35" />
+. ⊹˚₊ ‎‎  ‎‎  naka‎ ‎‎  <img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" /> ‎‎  15‎ ‎‎  ‎<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" /> ‎‎  she/her‎ ‎‎  ‎<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" /> ‎‎  poc  ‎‎  ‎‎   ₊˚⊹ .<img width="20" height="20" alt="ijl2Xo6" src="https://github.com/user-attachments/assets/832c4eb3-b21b-4ccc-992f-addff5805d35" />
  ݁˖
 <p align="center">
 <img width="510" height="200" alt="Untitled83_20260624151008" src="https://github.com/user-attachments/assets/3207890d-c73d-4578-a31a-7410b705840a" />
