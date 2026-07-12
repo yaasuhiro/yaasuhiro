@@ -1,4 +1,5 @@
-THANGYA [@title-town](https://github.com/title-town)
+<p align="center">
+  THANGYA [@title-town](https://github.com/title-town) i jusr found out im in there
 <p align="center">
 <img width="500" height="210" alt="Untitled134_20260630211215" src="https://github.com/user-attachments/assets/45654471-d4e7-4bb1-a65d-d7f83b669920" />
 
