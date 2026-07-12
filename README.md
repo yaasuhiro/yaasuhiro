@@ -5,7 +5,9 @@ THANGYA [@title-town](https://github.com/title-town) i jusr found out im in ther
 
 <p align="center">
 ‪<img width="20" height="20" alt="eke56TQ" src="https://github.com/user-attachments/assets/3d21a180-8aba-4628-92ae-fac4634413ab" />
-  ‎ ‎  ⊹ ₊<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" />  ‎ ‎  my lovelies ‎ ‎ ‪<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" />₊ ⊹ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=896a4b&label=♡&base=10679" alt="Profile Views Counter" >
+  ‎ ‎  ⊹ ₊<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" />  ‎ ‎  " 𝚖𝚢 𝚙𝚛𝚎𝚍𝚒𝚌𝚝𝚒𝚘𝚗𝚜 𝚊𝚛𝚎 𝚊𝚕𝚠𝚊𝚢𝚜 
+  <p align="center">
+  𝚛𝚒𝚐𝚑𝚝 𝟹𝟶% 𝚘𝚏 𝚝𝚑𝚎 𝚝𝚒𝚖𝚎 ! " ‎ ‎ ‪<img width="15" height="15" alt="ODkcz05" src="https://github.com/user-attachments/assets/0ad0389c-7164-4c49-8ab4-bf17329c7564" />₊ ⊹ ‎ ‎ <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=896a4b&label=♡&base=10679" alt="Profile Views Counter" >
 </p>
 <p align="center">
 <img width="510" height="360" alt="Untitled126_20260630202552" src="https://github.com/user-attachments/assets/b68a2bc7-ae05-4aa6-98a1-91383930ad7a" />
