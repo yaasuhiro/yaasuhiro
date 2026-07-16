@@ -1,4 +1,4 @@
-THANGYA [@title-town](https://github.com/title-town) AND [@pt-awards](https://github.com/pt-awards)
+THANGYA [@title-town](https://github.com/title-town) + [@pt-awards](https://github.com/pt-awards) + [@pt-players](https://github.com/pt-players) ♡
 <p align="center">
  ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚ ۪:
   <p align="center">
