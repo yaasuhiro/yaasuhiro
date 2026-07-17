@@ -4,7 +4,7 @@ THANGYA [@title-town](https://github.com/title-town) + [@pt-awards](https://gith
   <p align="center">
 <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=764731&label=aliens&base=10679" alt="Profile Views Counter" >
 <p align="center">
-<img width="800" height="165" alt="Untitled151_20260716002724" src="https://github.com/user-attachments/assets/3aa463f0-2aac-44f7-abfb-88d026e66bc4" />
+<img width="500" height="85" alt="Untitled151_20260716002724" src="https://github.com/user-attachments/assets/3aa463f0-2aac-44f7-abfb-88d026e66bc4" />
 <p align="center">
 <img width="800" height="500" alt="Untitled151_20260715230914" src="https://github.com/user-attachments/assets/2b79a2de-a464-480a-9eae-b3a7c8f938c0" />
 <p align="center">
