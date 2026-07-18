@@ -9,7 +9,7 @@ THANGYA [@title-town](https://github.com/title-town) + [@pt-awards](https://gith
 <p align="center">
 <img width="500" height="85" alt="Untitled151_20260716002724" src="https://github.com/user-attachments/assets/3aa463f0-2aac-44f7-abfb-88d026e66bc4" />
 <p align="center">
-<img width="800" height="500" alt="Untitled151_20260715230914" src="https://github.com/user-attachments/assets/2b79a2de-a464-480a-9eae-b3a7c8f938c0" />
+<img width="800" height="500" alt="download (24)" src="https://github.com/user-attachments/assets/0e0b22ce-ea44-4018-9435-c75d48688e75" />
 <p align="center">
 <img width="800" height="200" alt="Untitled160_20260716003414" src="https://github.com/user-attachments/assets/e2760671-16e7-4ff7-9012-bd1c7f7f1d7c" />
 <p align="center">
