@@ -18,7 +18,7 @@ THANGYA [@title-town](https://github.com/title-town) + [@pt-awards](https://gith
 <img width="800" height="160" alt="Untitled162_20260716004041" src="https://github.com/user-attachments/assets/cfa5f5aa-9ff2-4314-b6af-a4b1be619ab4" />
 <p align="center">
   <a href="https://yasuhiro.atabook.org/">
-<img width="100" height="60" alt="Untitled151_20260715231656" src="https://github.com/user-attachments/assets/9be7321b-0d6e-475b-9fc5-81c3693f3b2a" />   ‎ ‎ ‎ ‎ ‎ <a href="https://rentry.co/kure"> <img width="155" height="55" alt="Untitled155_20260716000921" src="https://github.com/user-attachments/assets/53e662a8-1a70-46f2-9720-9232ed40c9d5" />   ‎ ‎ ‎ ‎ ‎ <a href="https://yasuhiro.straw.page/"><img width="155" height="65" alt="Untitled151_20260715231744" src="https://github.com/user-attachments/assets/beb34d0a-3a1a-4217-b4f8-47cef66265f3" />
+<img width="80" height="40" alt="Untitled151_20260715231656" src="https://github.com/user-attachments/assets/9be7321b-0d6e-475b-9fc5-81c3693f3b2a" />   ‎ ‎ ‎ ‎ ‎ <a href="https://rentry.co/kure"> <img width="110" height="35" alt="Untitled155_20260716000921" src="https://github.com/user-attachments/assets/53e662a8-1a70-46f2-9720-9232ed40c9d5" />   ‎ ‎ ‎ ‎ ‎ <a href="https://yasuhiro.straw.page/"><img width="110" height="45" alt="Untitled151_20260715231744" src="https://github.com/user-attachments/assets/beb34d0a-3a1a-4217-b4f8-47cef66265f3" />
 <p align="center">
 <img width="800" height="500" alt="Untitled151_20260715231021" src="https://github.com/user-attachments/assets/d092cf64-287c-439f-bbd3-741c58e7a3f1" />
 
