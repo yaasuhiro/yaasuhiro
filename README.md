@@ -1,6 +1,7 @@
 <img width="196" height="49" alt="Untitled151_20260717000326" src="https://github.com/user-attachments/assets/7de99ee0-66ad-4696-aa51-ceb6980426e0" /> 
 
-THANGYA [@title-town](https://github.com/title-town) + [@pt-awards](https://github.com/pt-awards) + [@pt-players](https://github.com/pt-players) + [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) ♡ 
+
+THANGYA [@title-town](https://github.com/title-town) + [@pt-awards](https://github.com/pt-awards) + [@pt-players](https://github.com/pt-players) + [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) ♡ <sub><sup> if you're on mobile, view my profile [here](https://rentry.co/yaasuhiros) </sup></sub>
 
 <p align="center">
  ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚ ۪:
