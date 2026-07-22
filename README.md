@@ -1,10 +1,11 @@
 <img width="196" height="49" alt="Untitled151_20260717000326" src="https://github.com/user-attachments/assets/7de99ee0-66ad-4696-aa51-ceb6980426e0" /> 
 
+$\color{#afa8a3}{\textsf{testing}}$
 
-THANGYA [@title-town](https://github.com/title-town) + [@pt-awards](https://github.com/pt-awards) + [@pt-players](https://github.com/pt-players) + [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) ♡ <sub><sup> if you're on mobile, view my profile [here](https://rentry.co/yaasuhiros) </sup></sub>
+$\color{#754B32}{\textsf{THANGYA}}$ [@title-town](https://github.com/title-town) + [@pt-awards](https://github.com/pt-awards) + [@pt-players](https://github.com/pt-players) + [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) $\color{#754B32}{\textsf{♡}}$ <sub><sup> $\color{#754B32}{\textsf{if you're on mobile, view my profile}}$ [here](https://rentry.co/yaasuhiros) </sup></sub> 
 
 <p align="center">
- ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚ ۪:
+$\color{#A4856E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚ ۪:}}$
   <p align="center">
 <img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=764731&label=aliens&base=10679" alt="Profile Views Counter" >
 <p align="center">
