@@ -13,7 +13,7 @@ $\color{#A4856E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚
 <p align="center">
 <img width="820" height="200" alt="Screenshot_2026-07-22_165354" src="https://github.com/user-attachments/assets/1bd42d1f-9711-460a-89bc-b9a9302c2ba4" />
 <p align="center">
-<img width="800" height="150" alt="Untitled151_20260715231058" src="https://github.com/user-attachments/assets/85ace335-e061-467a-8505-1b3bfbced7ef" />
+<img width="800" height="130" alt="Untitled151_20260715231058" src="https://github.com/user-attachments/assets/85ace335-e061-467a-8505-1b3bfbced7ef" />
 <p align="center">
  <img width="820" height="200" alt="image" src="https://github.com/user-attachments/assets/7a9316f2-901a-4196-aa87-861d987fcf40" />
 <p align="center">
