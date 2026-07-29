@@ -1,6 +1,6 @@
 <img width="196" height="49" alt="Untitled151_20260717000326" src="https://github.com/user-attachments/assets/7de99ee0-66ad-4696-aa51-ceb6980426e0" /> 
 
-$\color{#754B32}{\textsf{THANGYA}}$ [@title-town](https://github.com/title-town) $\color{#A4856E}{\textsf{+}}$ [@pt-awards](https://github.com/pt-awards) $\color{#A4856E}{\textsf{+}}$ [@pt-players](https://github.com/pt-players) $\color{#A4856E}{\textsf{+}}$ [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) $\color{#A4856E}{\textsf{+}}$ [@compliment-town](https://github.com/compliment-town) $\color{#A4856E}{\textsf{+}}$ [@pt-fashion](https://github.com/pt-fashion)$\color{#A4856E}{\textsf{+}}$ [@pt-hall-of-media](https://github.com/pt-hall-of-media) $\color{#754B32}{\textsf{♡}}$ 
+$\color{#754B32}{\textsf{THANGYA}}$ [@title-town](https://github.com/title-town) $\color{#A4856E}{\textsf{+}}$ [@pt-awards](https://github.com/pt-awards) $\color{#A4856E}{\textsf{+}}$ [@pt-players](https://github.com/pt-players) $\color{#A4856E}{\textsf{+}}$ [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) $\color{#A4856E}{\textsf{+}}$ [@compliment-town](https://github.com/compliment-town) $\color{#A4856E}{\textsf{+}}$ [@pt-fashion](https://github.com/pt-fashion) $\color{#A4856E}{\textsf{+}}$ [@pt-hall-of-media](https://github.com/pt-hall-of-media) $\color{#754B32}{\textsf{♡}}$ 
 
 <p align="center">
 $\color{#A4856E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚ ۪:}}$
