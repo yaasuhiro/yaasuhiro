@@ -10,7 +10,7 @@ $\color{#754B32}{\textsf{THANGYA}}$ [@title-town](https://github.com/title-town)
 <p align="center">
 $\color{#A4856E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚ ۪:}}$
   <p align="center">
-<img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=764731&label=aliens&base=10679" alt="Profile Views Counter" >
+$\color{#754B32}{\textsf{𝕚𝕔}}$ $\color{#754B32}{\textsf{𝕞𝕠}}\color{#8b5d42}{\textsf{𝕠𝕤𝕠𝕡}}\color{#90674f}{\textsf{𝕡}}$ $\color{#90674f}{\textsf{𝕠𝕟}}$ $\color{#90674f}{\textsf{𝕚}}\color{#9e7866}{\textsf{𝕟𝕤𝕥𝕒}}$ㅤ<img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=764731&label=aliens&base=10679" alt="Profile Views Counter" >
 <p align="center">
 <img width="500" height="85" alt="Untitled151_20260716002724" src="https://github.com/user-attachments/assets/3aa463f0-2aac-44f7-abfb-88d026e66bc4" />
 <p align="center">
