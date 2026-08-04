@@ -12,7 +12,7 @@ $\color{#A4856E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ 🪜 ˖ㅤㅤ۫ㅤᘞ ˚
   <p align="center">
 $\color{#754B32}{\textsf{𝕚𝕔}}$ $\color{#754B32}{\textsf{𝕞𝕠}}\color{#8b5d42}{\textsf{𝕠𝕤𝕠𝕡}}\color{#90674f}{\textsf{𝕡}}$ $\color{#90674f}{\textsf{𝕠𝕟}}$ $\color{#90674f}{\textsf{𝕚}}\color{#9e7866}{\textsf{𝕟𝕤𝕥𝕒}}$ㅤ<img src="https://komarev.com/ghpvc/?username=yaasuhiro&color=764731&label=aliens&base=10679" alt="Profile Views Counter" >
 <p align="center">
-<img width="500" height="85" alt="Untitled151_20260716002724" src="https://github.com/user-attachments/assets/3aa463f0-2aac-44f7-abfb-88d026e66bc4" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=16&pause=600&color=5A3A28&width=435&lines=%22+if+you+worry+too+much+%2C+you'll+go+bald+.+just+let+it+flow%2C+man.+%22;%22+you're+trying+to+frame+me+!+i'm+too+beautiful+to+die+!+%22;%22+when+i+hit+%2C+i+hit+big+!+like+%2C+major+lottery+status+!+%22;%22+the+spirits+told+me+!+there+is+no+doubt+about+it+!+%22;%22+i+just+wanted+to+squeeze+a+little+cash+out+of+a+rich+girl+!+how+was+i+supposed+to+know+her+dad+was+a+mafia+boss+%3F!+%22" alt="Typing SVG" /></a>
 <p align="center">
 <img width="800" height="500" alt="download (25)" src="https://github.com/user-attachments/assets/ad3fe448-018b-41b6-a0c3-404d06dcd11f" />
 <p align="center">
