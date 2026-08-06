@@ -1,4 +1,4 @@
-<img width="196" height="49" alt="Untitled151_20260717000326" src="https://github.com/user-attachments/assets/7de99ee0-66ad-4696-aa51-ceb6980426e0" /> 
+<img width="196" height="49" alt="Cg60z3x md" src="https://github.com/user-attachments/assets/a9eba9c6-aedc-402e-b938-26f219b4ee90" />
 <img width="200" height="40" alt="IMG_4538" src="https://github.com/user-attachments/assets/19b84bff-ddef-4300-bd34-41f7f37f3214" />
 <img width="200" height="40" alt="IMG_4539" src="https://github.com/user-attachments/assets/325d09d1-834c-4e2c-aadc-0c05048be983" />
 <img width="200" height="40" alt="IMG_4540" src="https://github.com/user-attachments/assets/2eeca3a6-210a-47ef-a7b4-cf544963c8df" />
@@ -14,17 +14,19 @@ $\color{#754B32}{\textsf{𝕚𝕔}}$ $\color{#754B32}{\textsf{𝕞𝕠}}\color{#
 <p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=15&pause=600&color=5A3A28&width=435&lines=%22+if+you+worry+too+much+%2C+you'll+go+bald+.+just+let+it+flow%2C+man.+%22" alt="Typing SVG" /></a>
 <p align="center">
-<img width="800" height="500" alt="download (25)" src="https://github.com/user-attachments/assets/ad3fe448-018b-41b6-a0c3-404d06dcd11f" />
+<img width="800" height="500" alt="IMG_4678" src="https://github.com/user-attachments/assets/79382fd1-c431-44b6-88b2-f965d364ac32" />
 <p align="center">
-<img width="820" height="200" alt="Screenshot_2026-07-22_165354" src="https://github.com/user-attachments/assets/1bd42d1f-9711-460a-89bc-b9a9302c2ba4" />
+<img width="820" height="200" alt="Cg6a4Zg md" src="https://github.com/user-attachments/assets/576cf89d-2e81-4e4a-b81f-26476304cb50" />
 <p align="center">
-<img width="800" height="150" alt="Untitled151_20260715231058" src="https://github.com/user-attachments/assets/85ace335-e061-467a-8505-1b3bfbced7ef" />
+<img width="800" height="150" alt="Cg6lMXe md" src="https://github.com/user-attachments/assets/8b4a085f-27ba-4113-a76f-02668e4bd96f" />
 <p align="center">
- <img width="820" height="180" alt="image" src="https://github.com/user-attachments/assets/7a9316f2-901a-4196-aa87-861d987fcf40" />
+ <img width="820" height="180" alt="Cg6cUl4 md" src="https://github.com/user-attachments/assets/fb3af899-adf9-408a-b789-4e3cff228997" />
 <p align="center">
 <img width="300" height="40" alt="Untitled151_20260720201554" src="https://github.com/user-attachments/assets/142df998-5bf5-478b-8c5d-e28bb017e8cf" />  ‎ ‎ ‎   ‎ ‎ ‎ 
    ‎ ‎ ‎  <a href="https://yasuhiro.atabook.org/">
-<img width="65" height="40" alt="Untitled151_20260715231656" src="https://github.com/user-attachments/assets/9be7321b-0d6e-475b-9fc5-81c3693f3b2a" />   ‎ ‎ ‎ ‎ ‎ <a href="https://rentry.co/kure"> <img width="115" height="35" alt="Untitled155_20260716000921" src="https://github.com/user-attachments/assets/53e662a8-1a70-46f2-9720-9232ed40c9d5" />   ‎ ‎ ‎ ‎ ‎ <a href="https://yasuhiro.straw.page/"><img width="115" height="42" alt="Untitled151_20260715231744" src="https://github.com/user-attachments/assets/beb34d0a-3a1a-4217-b4f8-47cef66265f3" />
+<img width="65" height="40" alt="Cg607ZF md" src="https://github.com/user-attachments/assets/abf4fdc8-2e79-4f4d-ae28-132189e81ebe" />
+   ‎ ‎ ‎ ‎ ‎ <a href="https://rentry.co/kure"> <img width="115" height="40" alt="CgiFMIS md" src="https://github.com/user-attachments/assets/a8328521-b1af-4b7b-acb9-5d7cec81830d" />
+   ‎ ‎ ‎ ‎ ‎ <a href="https://yasuhiro.straw.page/"><img width="115" height="42" alt="Cg60WuI md" src="https://github.com/user-attachments/assets/d032d5e0-c593-4c44-8104-2bb546f3790d" />
 <p align="center">
 <img width="800" height="500" alt="Untitled151_20260715231021" src="https://github.com/user-attachments/assets/d092cf64-287c-439f-bbd3-741c58e7a3f1" />
 
